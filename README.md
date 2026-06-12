@@ -1,0 +1,1 @@
+# worldskills-studica-avaliacao-tecnica
